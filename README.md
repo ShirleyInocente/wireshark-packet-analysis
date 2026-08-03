@@ -75,4 +75,4 @@ The investigation followed these steps:
 
 Cybersecurity Analyst | Security Operations | Network Security
 
-LinkedIn: [Add your LinkedIn URL]
+LinkedIn: [Shirley Inocenté](https://www.linkedin.com/in/sinocente/)
